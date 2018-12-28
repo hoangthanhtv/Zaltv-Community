@@ -1,6 +1,6 @@
 # Zaltv Community
 
-Những điều mà bạn cần biết nếu muốn tham gia Zaltv (chia sẻ code zaltv)(https://www.facebook.com/groups/zaltv/)
+Những điều mà bạn cần biết nếu muốn tham gia Zaltv (https://www.facebook.com/groups/zaltv/)
 
 ## Liên kết
 
