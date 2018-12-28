@@ -1,6 +1,6 @@
-# J2TEAM Community
+# Zaltv Community
 
-Những điều mà bạn cần biết nếu muốn tham gia [J2TEAM Community](https://www.facebook.com/groups/j2team.community/)
+Những điều mà bạn cần biết nếu muốn tham gia Zaltv (chia sẻ code zaltv)(https://www.facebook.com/groups/zaltv/)
 
 ## Liên kết
 
